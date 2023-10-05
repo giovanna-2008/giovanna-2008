@@ -1,1 +1,1 @@
-![texto-alternativo](![image](https://github.com/giovanna-2008/giovanna-2008/assets/145015891/28244c37-f88c-4d81-83f4-08169702afd7)
+![image](https://github.com/giovanna-2008/giovanna-2008/assets/145015891/8ccc577f-9075-4443-a942-f2bcffeab4a6)
